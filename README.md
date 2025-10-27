@@ -4,4 +4,4 @@ This is a replacement for the many blogs done by OgFOMK ArTS. There have been si
 
 Please view responsively. 
 
-Yes!
+[Yes!](_post/2025-10-27-OH-BOY-It-IS-LOVE.md)
