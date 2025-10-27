@@ -5,3 +5,4 @@ This is a replacement for the many blogs done by OgFOMK ArTS. There have been si
 Please view responsively. 
 
 [2025](2025.md)
+[2024](2024/2024.md)
