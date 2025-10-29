@@ -17,7 +17,7 @@ How do we do great work without the blessing of Jesus Christ? It is not possible
 
 >13 But go ye and learn what that meaneth, I will have mercy, and not sacrifice: for I am not come to call the righteous, but sinners to repentance. 
 
-Can I take OGFOMK and repurposed it as a blessing? Can I make this a vehicle for His namesake? Can I make a business or a ministry from speaking and writing about the wrong direction we are going? Can I also write about the good direction people are moving in?
+Can we take OGFOMK and repurposed it as a blessing? Can we make this a vehicle for His namesake? Can we make a business or a ministry from speaking and writing about the wrong direction we are going? Can we also write about the good direction people are moving in?
 
 One Giant Fart on Mankind should be repurposed. The attempt at renaming has been done before. Let's do it again. Let us pray. Let us bow our heads and pray, We pray that the LORD will allow a new name to come from the old draught as fertilizer into the garden.
 
