@@ -19,9 +19,9 @@
 # in the templates via {{ site.myvariable }}.
 
 title: OgFOMK ArTS
-# email: website@ogfomk.com
+email: website@ogfomk.com
 description: >- # this means to ignore newlines until "baseurl:"
-  OgFOMK ArTS Blog 
+  OgFOMK ArTS Magazine -- npub1ycwk4t5d6ct5lqz8t3z463hck0qymyugaqx8lcvmzywtjlpk8fgsyn937w
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "https://ogfomk.com" # the base hostname & protocol for your site, e.g. http://example.com
 # twitter_username: 
