@@ -24,7 +24,7 @@ description: >- # this means to ignore newlines until "baseurl:"
   OgFOMK ArTS Magazine -- npub1ycwk4t5d6ct5lqz8t3z463hck0qymyugaqx8lcvmzywtjlpk8fgsyn937w
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "https://ogfomk.com" # the base hostname & protocol for your site, e.g. http://example.com
-# twitter_username: 
+twitter_username: ogfomkarts
 github_username: ogfomk
 show_downloads: [true]
 google_analytics: [397830313]
