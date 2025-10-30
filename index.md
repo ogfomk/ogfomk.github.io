@@ -4,4 +4,4 @@
 
 layout: home
 ---
-![Do Not Look At This](/assets/Banner-700x220-grey.png)
+![OgFOMK ArTS Banner with Norfolk, VA](/assets/20251030-banner5.700x188.col.png)
