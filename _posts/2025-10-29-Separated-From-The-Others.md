@@ -1,0 +1,42 @@
+---
+layout: post
+title:  "Separated From The Others"
+date:   2025-10-29 18:00:00 -0400
+categories: blog bible 
+---
+
+> Exodus 8:23
+
+> 23 And I will put a division between my people and thy people: to morrow
+shall this sign be.
+
+![Chequebook of the Bank of Faith](/assets/IMG_20251030_153525-picsay.png)
+
+This post was inspired by <ins>Checque Book of the Bank Of Faith</ins> "Daily Readings" by C.H. Spurgeon.  
+
+-- <a href="https://dn790006.ca.archive.org/0/items/thechequebookoft00purguoft/thechequebookoft00purguoft.pdf" target="_blank">PDF <ins>Checque Book of the Bank Of Faith</ins> at archive.org</a>
+
+-- <a href="https://www.christianbook.com/chequebook-the-bank-faith-tan-green/9781845500702/pd/500709?event=BRSRCG|PSEN" target="_blank">Order 
+<ins>Chequebook of the Bank of Faith </ins> - from ChristianBook.com</a>
+
+Today we are separated from the devil who deserves only a lower case spelling as his folly is the fallow ground that is not cultivated through the blood of Jesus Christ. The LORD's people are separated by 2 things. one thing is in obedience and the second thing is by grace. There is an order known by God and observed by man but the LORD, himself, tells us that these are his people. Even the stranger becomes one of the chosen when we obey God's law.
+
+> Exodus 12:49
+
+  > 49 One law shall be to him that is homeborn, and unto the stranger that
+sojourneth among you.
+
+> Exodus 23:9
+
+  > 9 Also thou shalt not oppress a stranger: for ye know the heart of a
+stranger, seeing ye were strangers in the land of Egypt.
+
+To sum up what the separation is, These are the people with whom God loves because they do what he asks them to do, most of the time. God is the loving and wise God because he is the only one capable of doing this. Even when his people are stiff necked he does this. He also will severely punish those who disobey. When you read the The King James Bible you will understand that God sees a whole lot of nonsense before he chastises.
+
+> Deuteronomy 13:18
+
+  > 18 When thou shalt hearken to the voice of the LORD thy God, to keep all his
+commandments which I command thee this day, to do that which is right in the
+eyes of the LORD thy God.
+
+
