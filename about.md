@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-![OgFOMK ArTS Logo](/assets/2018-CircleLogo-v004-300x300.png) 
+![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251029.4.300x300.png) 
 
 OgFOMK ArTS was started in 1987. We published a 'zine in 1988 through the mid 2000s very infrequently. We published music, papers, documents and web content. We also have been involved in various business entities regarding construction, arts and letters. 
 
