@@ -35,7 +35,7 @@ fornications, thefts, false witness, blasphemies:
 
 ## One God For Our Man Kind
 
-![OgFOMK ArTS Logo](/assets/ogfomk-halo-big1-512.png)
+![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251029.4.300x300.png) 
 
 ## Our God For Our Man Kind
 
