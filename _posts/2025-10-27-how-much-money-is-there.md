@@ -17,7 +17,7 @@ How much money is there in this world? The answer is provided by those with dive
   
   > 15 But thou shalt have a perfect and just weight, a perfect and just measure shalt thou have: that thy days may be lengthened in the land which the LORD thy God giveth thee.
 
-Inflation is the unlimited money numerator printed in order to circumnavigate price discovery. One more thing that the praying man may understand is that this skill in precise measure affords him the blessing of the LORD in money. Not necessarily in wealth but in the understand of what divers measures are and also in not laying up treasure that is immeasurable. 
+Inflation is the unlimited money numerator printed in order to circumnavigate price discovery. One more thing that the praying man may understand is that this skill in precise measure affords him the blessing of the LORD in money. Not necessarily in wealth but in the understanding of what divers measures are and also in not laying up treasure that is immeasurable. 
 
 > Matthew 6:19-21
 
