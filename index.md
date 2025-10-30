@@ -4,4 +4,4 @@
 
 layout: home
 ---
-![OgFOMK ArTS Banner with Norfolk, VA](/assets/20251030-banner5.700x188.col.png)
+![OgFOMK ArTS Banner with Norfolk, VA](/assets/20251030-banner6.600x188.png)
