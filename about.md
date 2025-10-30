@@ -21,8 +21,9 @@ All Bible Quotes are from the Authorized King James Version unless otherwise not
 ---
 
 NOSTR:
-[nosta.me](https://nosta.me/261d6aae8dd6174f80475c455d46f8b3c04d9388e80c7fe19b111cb97c363a51)
-[njump.me](https://njump.me/npub1ycwk4t5d6ct5lqz8t3z463hck0qymyugaqx8lcvmzywtjlpk8fgsyn937w)
+[nosta.me](https://nosta.me/261d6aae8dd6174f80475c455d46f8b3c04d9388e80c7fe19b111cb97c363a51) - 
+[njump.me](https://njump.me/npub1ycwk4t5d6ct5lqz8t3z463hck0qymyugaqx8lcvmzywtjlpk8fgsyn937w) - 
+[ogfomk-arts.npub.pro](https://ogfomk-arts.npub.pro/)
 
 Telegram: 
 [@OgFOMK](https://t.me/OgFOMK) 
