@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251029.4.300x300.png) 
+![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251031.01.300x300.png) 
 
 OgFOMK ArTS was started in 1987. We published a 'zine in 1988 through the mid 2000s very infrequently. We published music, papers, documents and web content. We also have been involved in various business entities regarding construction, arts and letters. 
 
@@ -33,3 +33,6 @@ Telegram:
 
 Signal:
 [OgFOMK ArTS](https://signal.group/#CjQKIFCmbSGR4Rd5sB-NF62yzj-G2-4iZGrDt-H-Rl9-clomEhD4617Xpu-o1HAOVN1lbL5W)
+
+
+![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251031.01.80x80.png)

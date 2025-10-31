@@ -22,3 +22,5 @@ permalink: /note/
 
 
 ![1987-High School Young Ones](/assets/Alex_Chery_lJessie_Mike.jpg)
+
+![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251031.01.80x80.png)

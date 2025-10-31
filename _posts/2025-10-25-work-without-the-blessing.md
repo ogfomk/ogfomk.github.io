@@ -56,3 +56,5 @@ hearts and minds through Christ Jesus.
 
 ![OgFOMK ArTS Issue #1, 1988](/assets/Zine-to-pdf-ogfomk01.png)
 
+![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251031.01.80x80.png)
+
