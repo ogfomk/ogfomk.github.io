@@ -8,6 +8,4 @@ This is a Github Page using Jekyll. All things that are wrong are purely the fau
 
 This work is Creative Commons.
 
-![Bouncing Bohemian in Buckroe](/assets/20170819_1425007900.jpg)
-
-![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251031.01.80x80.png)
+![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251031.01.300x300.png)

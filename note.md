@@ -18,9 +18,4 @@ permalink: /note/
 - Fix logo: Take off two blue bars and make a fillet on 4 corners.
 - Add Donate Cash App and Strike  
 
-
-
-
-![1987-High School Young Ones](/assets/Alex_Chery_lJessie_Mike.jpg)
-
-![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251031.01.80x80.png)
+![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251031.01.300x300.png)

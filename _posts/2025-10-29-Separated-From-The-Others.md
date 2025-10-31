@@ -43,4 +43,4 @@ Moses knew his people, who, were, and are, the LORD's people. They are the same 
 
 Your best bet is to read your Bible, and get to know through the scripture, what is and is not true. Also, bend your knee and pray for Jesus Christ to be your advocate. He will do this. His blood has been shed already for everyone who will accept it.
 
-![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251031.01.80x80.png)
+![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251031.01.300x300.png)

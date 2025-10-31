@@ -35,7 +35,7 @@ fornications, thefts, false witness, blasphemies:
 
 ## One God For Our Man Kind
 
-![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251029.4.300x300.png) 
+![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251031.01.300x300.png) 
 
 ## Our God For Our Man Kind
 
@@ -54,7 +54,5 @@ thanksgiving let your requests be made known unto God.
 hearts and minds through Christ Jesus.
 
 
-![OgFOMK ArTS Issue #1, 1988](/assets/Zine-to-pdf-ogfomk01.png)
-
-![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251031.01.80x80.png)
+![OgFOMK ArTS Issue #1, 1988](/assets/Zine-to-pdf-ogfomk01.300x389.png)
 

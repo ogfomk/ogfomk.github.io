@@ -29,4 +29,4 @@ doth corrupt, and where thieves do not break through nor steal:
   
   > 21 For where your treasure is, there will your heart be also.
 
-![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251031.01.80x80.png)
+![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251031.01.300x300.png)
