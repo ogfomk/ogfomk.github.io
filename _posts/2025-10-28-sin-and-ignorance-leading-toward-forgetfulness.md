@@ -45,4 +45,4 @@ Hear the cries of the sophisticated man? He wants to never die, or he gives up i
 
 In the study of the King James Bible we enter into an adventure that remits us to salvation. We find actual awakening into the work of the LORD. We get revival. We get our mind and brain physically transformed from trans-humanist lies to born again through Jesus Christ.
 
-![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251031.01.300x300.png)
+![OgFOMK ArTS Logo](/assets/OgFOMK-Logo.png)

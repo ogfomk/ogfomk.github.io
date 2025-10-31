@@ -32,7 +32,7 @@ and they defile the man.
 > 19 For out of the heart proceed evil thoughts, murders, adulteries,
 fornications, thefts, false witness, blasphemies:
 
-![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251031.01.300x300.png) 
+![OgFOMK ArTS Logo](/assets/OgFOMK-Logo.png)
 
 In our traditional OgFOMK logo the "g" was made small in order to separate the acronym from others. Also the little "g" looked nice when it was in a certain font. By no means are we saying that "g" is deprecating GOD and we are also not saying that we represent GOD. We are the servants of the LORD who is the Triune GOD - THE FATHER - THE SON and THE HOLY SPIRIT. We are the servants of the LORD Jesus Christ and we bow to him only!
 
