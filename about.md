@@ -21,15 +21,15 @@ All Bible Quotes are from the Authorized King James Version unless otherwise not
 ---
 
 NOSTR:
-- [nosta.me](https://nosta.me/261d6aae8dd6174f80475c455d46f8b3c04d9388e80c7fe19b111cb97c363a51) - 
-- [njump.me](https://njump.me/npub1ycwk4t5d6ct5lqz8t3z463hck0qymyugaqx8lcvmzywtjlpk8fgsyn937w) - 
-- [ogfomk-arts.npub.pro](https://ogfomk-arts.npub.pro/) -
+- [nosta.me](https://nosta.me/261d6aae8dd6174f80475c455d46f8b3c04d9388e80c7fe19b111cb97c363a51)
+- [njump.me](https://njump.me/npub1ycwk4t5d6ct5lqz8t3z463hck0qymyugaqx8lcvmzywtjlpk8fgsyn937w)
+- [ogfomk-arts.npub.pro](https://ogfomk-arts.npub.pro/)
 - [Primal](https://primal.net/ogfomk)
 
 Telegram: 
-[@OgFOMK](https://t.me/OgFOMK) 
-[Telegram Group](https://t.me/OgFOMKarts)
-[Telegram Channel](https://t.me/ogfomk0)
+- [@OgFOMK](https://t.me/OgFOMK) 
+- [Telegram Group](https://t.me/OgFOMKarts)
+- [Telegram Channel](https://t.me/ogfomk0)
 
 Signal:
 [OgFOMK ArTS](https://signal.group/#CjQKIFCmbSGR4Rd5sB-NF62yzj-G2-4iZGrDt-H-Rl9-clomEhD4617Xpu-o1HAOVN1lbL5W)
