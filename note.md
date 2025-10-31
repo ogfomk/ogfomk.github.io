@@ -14,4 +14,4 @@ permalink: /note/
 5. Write often.
  
 
-![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251031.01.300x300.png)
+![OgFOMK ArTS Logo](/assets/OgFOMK-Logo.png)
