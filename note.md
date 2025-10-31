@@ -12,10 +12,6 @@ permalink: /note/
 3. Publish all previous works.
 4. Publish new works.
 5. Write often.
-
-## Today
-
-- Fix logo: Take off two blue bars and make a fillet on 4 corners.
-- Add Donate Cash App and Strike  
+ 
 
 ![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251031.01.300x300.png)
