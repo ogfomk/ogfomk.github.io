@@ -32,18 +32,13 @@ and they defile the man.
 > 19 For out of the heart proceed evil thoughts, murders, adulteries,
 fornications, thefts, false witness, blasphemies:
 
-
-## One God For Our Man Kind
-
-![OgFOMK ArTS Logo](/assets/OgFOMK-LOGO-20251029.4.300x300.png) 
-
-## Our God For Our Man Kind
+![OgFOMK ArTS Logo](/assets/OgFOMK-Logo.png)
 
 In our traditional OgFOMK logo the "g" was made small in order to separate the acronym from others. Also the little "g" looked nice when it was in a certain font. By no means are we saying that "g" is deprecating GOD and we are also not saying that we represent GOD. We are the servants of the LORD who is the Triune GOD - THE FATHER - THE SON and THE HOLY SPIRIT. We are the servants of the LORD Jesus Christ and we bow to him only!
 
 Our logo is a legacy and we are moving into removing the fetters of our acts of abomination toward greater acts of testimony and service. Let us tell the truth about where we have been and where we are going.
 
-Below is the Original Cover of Issue #1. What a mess! To say that this is embarrassing is an understatement but to also say that the demonic elements were also not there and that it was just mere blasphemy is also not true. This was a cover that our testimony can joyfully reject. We also don't need to hide. Through Jesus Christ we are healed and we are forgiven. Not because of what we did, but because of what he, Jesus Christ, did for us!
+Below is the Original Cover of OgFOMK ArTS Issue #1. [^1] What a mess! To say that this is embarrassing is an understatement but to also say that the demonic elements were also not there and that it was just mere blasphemy is also not true. This was a cover that our testimony can joyfully reject. We also don't need to hide. Through Jesus Christ we are healed and we are forgiven. Not because of what we did, but because of what he, Jesus Christ, did for us!
 
 > Philippians 4:6-7
 
@@ -53,6 +48,6 @@ thanksgiving let your requests be made known unto God.
 > 7 And the peace of God, which passeth all understanding, shall keep your
 hearts and minds through Christ Jesus.
 
-
-![OgFOMK ArTS Issue #1, 1988](/assets/Zine-to-pdf-ogfomk01.png)
+[^1]:
+![OgFOMK ArTS Issue #1, 1988](/assets/Zine-to-pdf-ogfomk01.300x389.png)
 
